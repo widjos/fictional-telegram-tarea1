@@ -1,3 +1,4 @@
+
 Cómo hacer masa de pizza casera
 ===
 Paso 1: 
@@ -12,3 +13,15 @@ Paso 3:
 ===============
 Ahora una vez lista, la dejamos reposar durante 1 hora más o menos. Una vez reposada la partimos en dos y podemos hacer dos pizzas muy majas. La amasamos y estiramos. Ponemos lo ingredientes y al horno. Listo!
 ---------------
+
+Paso 4: 
+===============
+**Hornear la pizza por lo menos 45 minutos a 200 grados celsius**
+
+Paso 5: 
+===============
+**sacarla del horno y decorarla con un poco de cilantro**
+
+Paso 6: 
+===============
+**partir y servir.**
